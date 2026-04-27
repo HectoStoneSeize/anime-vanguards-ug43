@@ -1,4 +1,4 @@
-
+Experience anime vanguards like never before with stealth Script for anime vanguards, the #1 Script. Includes aimbot and auto-farm for unbeatable
 
 
 
